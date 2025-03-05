@@ -1,6 +1,5 @@
-- hi, i’m evve
-- my hyperfixations are Tokyo Ghoul, cats 
-- pronouns: she/her 
+- ola putitos
+- tokyo ghoul fan i amante d los gatos 🗣️
 
 <!---
 evverv/evverv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
